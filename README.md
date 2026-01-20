@@ -39,3 +39,5 @@ Project managers/producers
 Why this carrer is interestring.
 
 this is interesting to me for one beacause i love video games. secondly because it can be a very creative job that allows you to make things that you enjoy. this can also give other people that same joy when they get to play the game.
+
+i added all the files i could but lost a few any files that arent here are in brightspace.
